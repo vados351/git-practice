@@ -3,7 +3,7 @@
 ##  I. Господин Нуартье де Вильфор 
 Вот что произошло в доме королевского прокурора после отъезда г-жи Данглар и ее дочери, в то время как происходил переданный нами разговор.
 
-## II.I ploxou chelovek tak-kak delay informatiky pozdno
+## II. I ploxou chelovek tak-kak delay informatiky pozdno
 Blin
 
 ## III. Телеграф 
